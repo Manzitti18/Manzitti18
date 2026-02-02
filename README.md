@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Manzitti18
-- 👀 I’m interested in video games, movies/tv shows and comics!!!
+- 👀 I’m an inspiring cybersecurity student looking forward to getting into the field!
   
 
 <!---
